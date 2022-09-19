@@ -1,0 +1,4 @@
+- Hello I am an extremely beginner web designer
+-  Im currently very interested in startpages
+-  I hope you can find some use out of what I make
+-  I am a student and tend to make my startpages based around school
